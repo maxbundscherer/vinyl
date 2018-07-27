@@ -12,7 +12,7 @@ My vinyl collection
 - **Falco** - Falco 3
 - **Jimi Hendrix** - Electric Ladyland
 - **Led Zeppelin** - Led Zeppelin IV
-- **Neil Young** - Harvest Moon
+- **Neil Young** - Harvest
 - **Pink Floyd** - Meddle
 - **Pink Floyd** - The Dark Side of the Moon
 - **Queen** - Greatest Hits
