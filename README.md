@@ -2,6 +2,6 @@
 
 My vinyl collection
 
-- a
+- **Queen** - Greatest Hits
 - b
 - c
