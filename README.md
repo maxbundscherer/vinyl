@@ -15,6 +15,7 @@ My vinyl collection
 - **Neil Young** - Harvest
 - **Pink Floyd** - Meddle
 - **Pink Floyd** - The Dark Side of the Moon
+- **Pink Floyd** - The Wall
 - **Queen** - Greatest Hits
 - **Santana** – Inner Secrets
 - **Simon and Garfunkel** - Bridge over Troubled Water
