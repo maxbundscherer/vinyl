@@ -22,6 +22,6 @@ My vinyl collection
 - **Simon and Garfunkel** - Bridge over Troubled Water
 - **Supertramp** - Breakfast in America
 - **Supertramp** - Even in the Quietest Moments...
-- **The Doors** - The Doors (1st Album)
-- **The Rolling Stones** – Exile On Main St.
-- **The Beatles** – Abbey Road
+- **Doors** - The Doors (1st Album)
+- **Rolling Stones** – Exile On Main St.
+- **Beatles** – Abbey Road
