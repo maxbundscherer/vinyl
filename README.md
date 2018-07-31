@@ -10,10 +10,12 @@ My vinyl collection
 - **Deep Purple** - In Rock
 - **Derek and the Dominos** - Layla and Other Assorted Love Songs
 - **Dire Straits** - Brothers In Arms
+- **Dire Straits** - Communiqué
 - **Doors** - The Doors (1st Album)
 - **Falco** - Falco 3
 - **Jefferson Airplane** - Surrealistic Pillow
 - **Jimi Hendrix** - Electric Ladyland
+- **Johnny Cash** - American VI: Ain't No Grave
 - **Led Zeppelin** - Led Zeppelin IV
 - **Neil Young** - Harvest
 - **Pink Floyd** -  Wish You Were Here
