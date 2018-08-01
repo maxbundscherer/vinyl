@@ -20,8 +20,8 @@ My vinyl collection
 - **Neil Young** - Harvest
 - **Pink Floyd** -  Wish You Were Here
 - **Pink Floyd** - Meddle
-- **Pink Floyd** - The Dark Side of the Moon `[1973 - US Winchester]`
-- **Pink Floyd** - The Dark Side of the Moon `[1983 Reissue - US]`
+- **Pink Floyd** - The Dark Side of the Moon \[1973 - US Winchester]\
+- **Pink Floyd** - The Dark Side of the Moon \[1983 Reissue - US]\
 - **Pink Floyd** - The Wall
 - **Queen** - Greatest Hits
 - **Rolling Stones** – Exile On Main St.
