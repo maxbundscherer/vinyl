@@ -31,4 +31,5 @@ My vinyl collection
 - **Supertramp** - Breakfast in America
 - **Supertramp** - Even in the Quietest Moments...
 - **Joe Bonamassa** - Dust Bowl
- - **Yes** – 90125
+- **Yes** – 90125
+- **Bob Marley & The Wailers** - Legend
