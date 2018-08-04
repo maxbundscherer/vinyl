@@ -30,3 +30,4 @@ My vinyl collection
 - **Simon and Garfunkel** - Bridge over Troubled Water
 - **Supertramp** - Breakfast in America
 - **Supertramp** - Even in the Quietest Moments...
+- **Joe Bonamassa** - Dust Bowl
