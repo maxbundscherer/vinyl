@@ -3,11 +3,12 @@
 My vinyl collection
 
 - **Beatles** – Abbey Road
+- **Bob Marley & The Wailers** - Legend
 - **Boston** - Don't Look Back
 - **Canned Heat** - Canned Heat
 - **Coldplay** - A Head Full Of Dream
-- **Creedence Clearwater Revival** - Creedence Clearwater Revival
 - **Creedence Clearwater Revival** - Chronicle – The 20 Greatest Hits
+- **Creedence Clearwater Revival** - Creedence Clearwater Revival
 - **Deep Purple** - In Rock
 - **Derek and the Dominos** - Layla and Other Assorted Love Songs
 - **Dire Straits** - Brothers In Arms
@@ -16,6 +17,7 @@ My vinyl collection
 - **Falco** - Falco 3
 - **Jefferson Airplane** - Surrealistic Pillow
 - **Jimi Hendrix** - Electric Ladyland
+- **Joe Bonamassa** - Dust Bowl
 - **Johnny Cash** - American VI: Ain't No Grave
 - **Led Zeppelin** - Led Zeppelin IV
 - **Neil Young** - Harvest
@@ -28,8 +30,7 @@ My vinyl collection
 - **Rolling Stones** – Exile On Main St.
 - **Santana** – Inner Secrets
 - **Simon and Garfunkel** - Bridge over Troubled Water
+- **Steppenwolf** – Born To Be Wild
 - **Supertramp** - Breakfast in America
 - **Supertramp** - Even in the Quietest Moments...
-- **Joe Bonamassa** - Dust Bowl
 - **Yes** – 90125
-- **Bob Marley & The Wailers** - Legend
