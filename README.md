@@ -7,6 +7,7 @@ My vinyl collection
 - **Boston** - Don't Look Back
 - **Canned Heat** - Canned Heat
 - **Coldplay** - A Head Full Of Dream
+- **Coldplay** - Viva la Vida or Death and All His Friends
 - **Creedence Clearwater Revival** - Chronicle – The 20 Greatest Hits
 - **Creedence Clearwater Revival** - Creedence Clearwater Revival
 - **Deep Purple** - In Rock
