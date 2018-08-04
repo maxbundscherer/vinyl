@@ -1,6 +1,8 @@
 # Vinyl
 
-My vinyl collection
+My vinyl collection 
+
+- **Author** - Name \[comment\]
 
 - **Beatles** – Abbey Road
 - **Bob Marley & The Wailers** - Legend
@@ -34,7 +36,7 @@ My vinyl collection
 - **Rolling Stones** – Exile On Main St.
 - **Santana** – Inner Secrets
 - **Simon and Garfunkel** - Bridge over Troubled Water
-- **Steppenwolf** – Born To Be Wild
+- **Steppenwolf** – Born To Be Wild \[45 RPM\]
 - **Supertramp** - Breakfast in America
 - **Supertramp** - Even in the Quietest Moments...
 - **Yes** – 90125
