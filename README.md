@@ -2,7 +2,7 @@
 
 My vinyl collection 
 
-- **Author** - Name \[comment\]
+**Author** - Name \[comment\]
 
 - **Beatles** – Abbey Road
 - **Bob Marley & The Wailers** - Legend
