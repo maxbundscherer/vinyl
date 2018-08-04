@@ -4,6 +4,7 @@ My vinyl collection
 
 **Author** - Name \[comment\]
 
+---
 - **Beatles** – Abbey Road
 - **Bob Marley & The Wailers** - Legend
 - **Boston** - Don't Look Back
@@ -40,3 +41,4 @@ My vinyl collection
 - **Supertramp** - Breakfast in America
 - **Supertramp** - Even in the Quietest Moments...
 - **Yes** – 90125
+---
