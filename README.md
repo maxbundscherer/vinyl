@@ -7,6 +7,7 @@ My vinyl collection
 - **Canned Heat** - Canned Heat
 - **Coldplay** - A Head Full Of Dream
 - **Creedence Clearwater Revival** - Creedence Clearwater Revival
+- **Creedence Clearwater Revival** - Chronicle – The 20 Greatest Hits
 - **Deep Purple** - In Rock
 - **Derek and the Dominos** - Layla and Other Assorted Love Songs
 - **Dire Straits** - Brothers In Arms
