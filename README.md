@@ -16,10 +16,12 @@ My vinyl collection
 - **Dire Straits** - Communiqué
 - **Doors** - The Doors (1st Album)
 - **Falco** - Falco 3
+- **Frank Sinatra** - Songs For Swingin' Lovers!
 - **Jefferson Airplane** - Surrealistic Pillow
 - **Jimi Hendrix** - Electric Ladyland
 - **Joe Bonamassa** - Dust Bowl
 - **Johnny Cash** - American VI: Ain't No Grave
+- **K.I.Z.** - Hurra Die Welt Geht Unter
 - **Led Zeppelin** - Led Zeppelin IV
 - **Neil Young** - Harvest
 - **Pink Floyd** -  Wish You Were Here
@@ -28,6 +30,7 @@ My vinyl collection
 - **Pink Floyd** - The Dark Side of the Moon \[1983 Reissue - US\]
 - **Pink Floyd** - The Wall
 - **Queen** - Greatest Hits
+- **Quentin Tarantino** - Pulp Fiction: Music From The Motion Picture
 - **Rolling Stones** – Exile On Main St.
 - **Santana** – Inner Secrets
 - **Simon and Garfunkel** - Bridge over Troubled Water
