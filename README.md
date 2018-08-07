@@ -9,7 +9,7 @@ My vinyl collection
 - **Bob Marley & The Wailers** - Legend
 - **Boston** - Don't Look Back
 - **Canned Heat** - Canned Heat
-- **Coldplay** - A Head Full Of Dream
+- **Coldplay** - A Head Full Of Dream \[Colored Vinyl\]
 - **Coldplay** - Viva la Vida or Death and All His Friends
 - **Creedence Clearwater Revival** - Chronicle – The 20 Greatest Hits
 - **Creedence Clearwater Revival** - Creedence Clearwater Revival
@@ -26,7 +26,7 @@ My vinyl collection
 - **Johnny Cash** - American VI: Ain't No Grave
 - **K.I.Z.** - Hurra Die Welt Geht Unter
 - **Led Zeppelin** - Led Zeppelin IV
-- **Materia** - Roswell
+- **Materia** - Roswell \[Colored Vinyl\]
 - **Neil Young** - Harvest
 - **Pink Floyd** -  Wish You Were Here
 - **Pink Floyd** - Meddle
