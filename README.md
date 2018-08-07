@@ -26,6 +26,7 @@ My vinyl collection
 - **Johnny Cash** - American VI: Ain't No Grave
 - **K.I.Z.** - Hurra Die Welt Geht Unter
 - **Led Zeppelin** - Led Zeppelin IV
+- **Materia** - Roswell
 - **Neil Young** - Harvest
 - **Pink Floyd** -  Wish You Were Here
 - **Pink Floyd** - Meddle
