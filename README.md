@@ -2,7 +2,7 @@
 
 My vinyl collection 
 
-**Author** - Name \[comment\]
+**Author** - Name \[comment/particularities\]
 
 ---
 - **Beatles** – Abbey Road
