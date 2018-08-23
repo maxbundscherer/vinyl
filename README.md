@@ -5,6 +5,7 @@ My vinyl collection
 **Author** - Name \[comment/particularities\]
 
 ---
+- **Air** - Moon Safari
 - **Beatles** – Abbey Road
 - **Bob Marley & The Wailers** - Legend
 - **Boston** - Don't Look Back
@@ -21,13 +22,17 @@ My vinyl collection
 - **Falco** - Falco 3
 - **Frank Sinatra** - Songs For Swingin' Lovers!
 - **Jefferson Airplane** - Surrealistic Pillow
+- **Jimi Hendrix** - Axis: Bold As Love
 - **Jimi Hendrix** - Electric Ladyland
 - **Joe Bonamassa** - Dust Bowl
 - **Johnny Cash** - American VI: Ain't No Grave
+- **Johnny Cash** - The Essential Johnny Cash
 - **K.I.Z.** - Hurra Die Welt Geht Unter
 - **Led Zeppelin** - Led Zeppelin IV
 - **Materia** - Roswell \[Colored Vinyl\]
+- **Michael Jackson** - Thriller
 - **Neil Young** - Harvest
+- **Peter Fox** - Stadtaffe
 - **Pink Floyd** -  Wish You Were Here
 - **Pink Floyd** - Meddle
 - **Pink Floyd** - The Dark Side of the Moon \[1973 - US Winchester\]
