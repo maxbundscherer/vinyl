@@ -30,7 +30,7 @@ My vinyl collection
 - **Johnny Cash** - The Essential Johnny Cash
 - **K.I.Z.** - Hurra Die Welt Geht Unter
 - **Led Zeppelin** - Led Zeppelin IV
-- **Materia** - Roswell \[Colored Vinyl\]
+- **Materia** - Roswell \[Colored Vinyl / CD included\]
 - **Michael Jackson** - Thriller
 - **Neil Young** - Harvest
 - **Peter Fox** - Stadtaffe
