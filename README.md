@@ -21,6 +21,7 @@ My vinyl collection
 - **Doors** - The Doors (1st Album)
 - **Falco** - Falco 3
 - **Frank Sinatra** - Songs For Swingin' Lovers!
+- **Hans Zimmer** - Interstellar (Original Motion Picture Soundtrack)
 - **Jefferson Airplane** - Surrealistic Pillow
 - **Jimi Hendrix** - Axis: Bold As Love
 - **Jimi Hendrix** - Electric Ladyland
@@ -46,5 +47,6 @@ My vinyl collection
 - **Steppenwolf** – Born To Be Wild \[45 RPM\]
 - **Supertramp** - Breakfast in America
 - **Supertramp** - Even in the Quietest Moments...
+- **U2** - How To Dismantle An Atomic Bomb
 - **Yes** – 90125
 ---
