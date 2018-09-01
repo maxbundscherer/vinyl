@@ -30,6 +30,7 @@ My vinyl collection
 - **Johnny Cash** - The Essential Johnny Cash
 - **K.I.Z.** - Hurra Die Welt Geht Unter
 - **Led Zeppelin** - Led Zeppelin IV
+- **Marsimoto** - Verde \[CD included\]
 - **Materia** - Roswell \[Colored Vinyl / CD included\]
 - **Michael Jackson** - Thriller
 - **Neil Young** - Harvest
@@ -40,6 +41,7 @@ My vinyl collection
 - **Pink Floyd** - The Dark Side of the Moon \[1983 Reissue - US\]
 - **Pink Floyd** - The Wall
 - **Queen** - Greatest Hits
+- **Queen** - Greatest Hits II
 - **Quentin Tarantino** - Pulp Fiction: Music From The Motion Picture
 - **Rolling Stones** – Exile On Main St.
 - **Santana** – Inner Secrets
@@ -48,5 +50,7 @@ My vinyl collection
 - **Supertramp** - Breakfast in America
 - **Supertramp** - Even in the Quietest Moments...
 - **U2** - How To Dismantle An Atomic Bomb
+- **Various** - Reggae Roots Vibration
+- **Who** - The Who Hits 50!
 - **Yes** – 90125
 ---
