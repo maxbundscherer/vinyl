@@ -30,6 +30,7 @@ My vinyl collection
 - **Johnny Cash** - The Essential Johnny Cash
 - **K.I.Z.** - Hurra Die Welt Geht Unter
 - **Led Zeppelin** - Led Zeppelin IV
+- **Lee Scratch Perry + Subatomic Sound System** – Super Ape Returns To Conquer \[CD included\]
 - **Marsimoto** - Verde \[45 RPM / CD included\]
 - **Materia** - Roswell \[Colored Vinyl / CD included\]
 - **Michael Jackson** - Thriller
