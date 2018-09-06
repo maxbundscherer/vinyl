@@ -35,6 +35,7 @@ My vinyl collection
 - **Materia** - Roswell \[Colored Vinyl / CD included\]
 - **Michael Jackson** - Thriller
 - **Neil Young** - Harvest
+- **Notorious B.I.G.** - Ready To Die
 - **Peter Fox** - Stadtaffe
 - **Pink Floyd** -  Wish You Were Here
 - **Pink Floyd** - Meddle
