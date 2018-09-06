@@ -52,6 +52,7 @@ My vinyl collection
 - **Supertramp** - Breakfast in America
 - **Supertramp** - Even in the Quietest Moments...
 - **U2** - How To Dismantle An Atomic Bomb
+- **U2** - The Joshua Tree
 - **Various** - Reggae Roots Vibration
 - **Who** - The Who Hits 50!
 - **Yes** – 90125
