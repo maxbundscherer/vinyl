@@ -32,7 +32,7 @@ My vinyl collection
 - **Led Zeppelin** - Led Zeppelin IV
 - **Lee Scratch Perry + Subatomic Sound System** – Super Ape Returns To Conquer \[CD included\]
 - **Marsimoto** - Verde \[45 RPM / CD included\]
-- **Materia** - Roswell \[Colored Vinyl / CD included\]
+- **Marteria** - Roswell \[Colored Vinyl / CD included\]
 - **Michael Jackson** - Thriller
 - **Neil Young** - Harvest
 - **Notorious B.I.G.** - Ready To Die
