@@ -37,7 +37,7 @@ My vinyl collection
 - **Neil Young** - Harvest
 - **Notorious B.I.G.** - Ready To Die
 - **Peter Fox** - Stadtaffe
-- **Pink Floyd** -  Wish You Were Here
+- **Pink Floyd** - Wish You Were Here
 - **Pink Floyd** - Meddle
 - **Pink Floyd** - The Dark Side of the Moon \[1973 - US Winchester\]
 - **Pink Floyd** - The Dark Side of the Moon \[1983 Reissue - US\]
