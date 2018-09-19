@@ -10,6 +10,7 @@ My vinyl collection
 - **Beatles** - Sgt. Pepper's Lonely Hearts Club Band
 - **Bob Marley & The Wailers** - Legend
 - **Boston** - Don't Look Back
+- **Bushman** - Signs
 - **Canned Heat** - Canned Heat
 - **Coldplay** - A Head Full Of Dream \[Colored Vinyl\]
 - **Coldplay** - Viva la Vida or Death and All His Friends
@@ -23,6 +24,7 @@ My vinyl collection
 - **Falco** - Falco 3
 - **Frank Sinatra** - Songs For Swingin' Lovers!
 - **Hans Zimmer** - Interstellar (Original Motion Picture Soundtrack)
+- **Jeff Beck Group** - Beck-Ola
 - **Jefferson Airplane** - Surrealistic Pillow
 - **Jimi Hendrix** - Axis: Bold As Love
 - **Jimi Hendrix** - Electric Ladyland
