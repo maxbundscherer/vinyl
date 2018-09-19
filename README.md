@@ -8,6 +8,7 @@ My vinyl collection
 - **Air** - Moon Safari
 - **Beatles** - Abbey Road
 - **Beatles** - Sgt. Pepper's Lonely Hearts Club Band
+- **Black Voodoo Train** - We Are Not In California
 - **Bob Marley & The Wailers** - Legend
 - **Boston** - Don't Look Back
 - **Bushman** - Signs
