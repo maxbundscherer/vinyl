@@ -9,6 +9,7 @@ My vinyl collection
 - **Beatles** - Abbey Road
 - **Beatles** - Sgt. Pepper's Lonely Hearts Club Band
 - **Black Voodoo Train** - We Are Not In California
+- **Blues Brothers** - The Blues Brothers (Original Soundtrack Recording)
 - **Bob Marley & The Wailers** - Legend
 - **Boston** - Don't Look Back
 - **Bushman** - Signs
@@ -18,6 +19,7 @@ My vinyl collection
 - **Creedence Clearwater Revival** - Chronicle - The 20 Greatest Hits
 - **Creedence Clearwater Revival** - Creedence Clearwater Revival
 - **Deep Purple** - In Rock
+- **Deichkind** - Niveau Weshalb Warum
 - **Derek and the Dominos** - Layla and Other Assorted Love Songs
 - **Dire Straits** - Brothers In Arms
 - **Dire Straits** - Communiqué
@@ -35,6 +37,7 @@ My vinyl collection
 - **K.I.Z.** - Hurra Die Welt Geht Unter
 - **Led Zeppelin** - Led Zeppelin IV
 - **Lee Scratch Perry + Subatomic Sound System** - Super Ape Returns To Conquer \[CD included\]
+- **Logic** - The Incredible True Story
 - **Marsimoto** - Verde \[45 RPM / CD included\]
 - **Marteria** - Roswell \[Colored Vinyl / CD included\]
 - **Michael Jackson** - Thriller
@@ -61,5 +64,6 @@ My vinyl collection
 - **U2** - The Joshua Tree
 - **Various** - Reggae Roots Vibration
 - **Who** - The Who Hits 50!
+- **Wooden Shjips** - Back To Land
 - **Yes** - 90125
 ---
