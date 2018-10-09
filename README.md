@@ -35,7 +35,7 @@ My vinyl collection
 - **Johnny Cash** - American VI: Ain't No Grave
 - **Johnny Cash** - The Essential Johnny Cash
 - **K.I.Z.** - Hurra Die Welt Geht Unter
-- **KraftKlub** - Keine Nacht Für Niemand
+- **KraftKlub** - Keine Nacht Für Niemand \[45 RPM\]
 - **Led Zeppelin** - Led Zeppelin IV
 - **Lee Scratch Perry + Subatomic Sound System** - Super Ape Returns To Conquer \[CD included\]
 - **Logic** - The Incredible True Story
