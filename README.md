@@ -6,6 +6,7 @@ My vinyl collection
 
 ---
 - **Air** - Moon Safari
+- **Barry White** - Barry White's Greatest Hits
 - **Beatles** - Abbey Road
 - **Beatles** - Sgt. Pepper's Lonely Hearts Club Band
 - **Black Voodoo Train** - We Are Not In California
@@ -24,8 +25,11 @@ My vinyl collection
 - **Dire Straits** - Brothers In Arms
 - **Dire Straits** - Communiqué
 - **Doors** - The Doors (1st Album)
+- **Earth, Wind & Fire** - The Best Of Earth, Wind & Fire Vol. I
 - **Falco** - Falco 3
 - **Frank Sinatra** - Songs For Swingin' Lovers!
+- **Giuseppe Verdi** - Aida / Don Carlos / Macbeth / Nabucco / Il Trovatore
+- **Giuseppe Verdi** - Nabucco - Großer Querschnitt In Italienischer Sprache
 - **Hans Zimmer** - Interstellar (Original Motion Picture Soundtrack)
 - **Jeff Beck Group** - Beck-Ola
 - **Jefferson Airplane** - Surrealistic Pillow
@@ -41,6 +45,7 @@ My vinyl collection
 - **Logic** - The Incredible True Story
 - **Marsimoto** - Verde \[45 RPM / CD included\]
 - **Marteria** - Roswell \[Colored Vinyl / CD included\]
+- **Maurice Rave** - Bolero
 - **Michael Jackson** - Thriller
 - **Neil Young** - Harvest
 - **Notorious B.I.G.** - Ready To Die
@@ -61,9 +66,11 @@ My vinyl collection
 - **Steppenwolf** - Born To Be Wild \[45 RPM\]
 - **Supertramp** - Breakfast in America
 - **Supertramp** - Even in the Quietest Moments...
+- **Tina Turner** - Private Dancer
 - **U2** - How To Dismantle An Atomic Bomb
 - **U2** - The Joshua Tree
 - **Various** - Reggae Roots Vibration
+- **W. Ambros** - Wie Im Schlaf
 - **Who** - The Who Hits 50!
 - **Wooden Shjips** - Back To Land
 - **Yes** - 90125
