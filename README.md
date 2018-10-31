@@ -68,8 +68,10 @@ My vinyl collection
 - **Seeed** - New Dubby Conquerors
 - **Simon and Garfunkel** - Bridge over Troubled Water
 - **Steppenwolf** - Born To Be Wild \[45 RPM\]
+- **Steppenwolf** - Steppenwolf
 - **Supertramp** - Breakfast in America
 - **Supertramp** - Even in the Quietest Moments...
+- **Tame Impala** - Innerspeaker
 - **Tina Turner** - Private Dancer
 - **U2** - How To Dismantle An Atomic Bomb
 - **U2** - The Joshua Tree
