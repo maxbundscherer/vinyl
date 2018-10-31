@@ -5,7 +5,7 @@ My vinyl collection
 **Author** - Name \[comment/particularities\]
 
 ---
-- **0101 (Stefan Carl, Daniel von Rüdiger)** - 0101
+- **0101 (Stefan Carl, Daniel von Rüdiger)** - 0101 \[Cover bathed in the water\]
 - **Air** - Moon Safari
 - **Barry White** - Barry White's Greatest Hits
 - **Beatles** - Abbey Road
