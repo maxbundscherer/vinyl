@@ -5,6 +5,7 @@ My vinyl collection
 **Author** - Name \[comment/particularities\]
 
 ---
+- **0101 (Stefan Carl, Daniel von Rüdiger)** - 0101
 - **Air** - Moon Safari
 - **Barry White** - Barry White's Greatest Hits
 - **Beatles** - Abbey Road
@@ -25,7 +26,7 @@ My vinyl collection
 - **Dire Straits** - Brothers In Arms
 - **Dire Straits** - Communiqué
 - **Doors** - The Doors (1st Album)
-- **Earth, Wind & Fire** - The Best Of Earth, Wind & Fire Vol. I
+- **Earth, Wind & Fire** - The Best Of Earth, Wind & Fire Vol. I \[Damaged/Archived\]
 - **Falco** - Falco 3
 - **Frank Sinatra** - Songs For Swingin' Lovers!
 - **Giuseppe Verdi** - Aida / Don Carlos / Macbeth / Nabucco / Il Trovatore
@@ -45,8 +46,10 @@ My vinyl collection
 - **Logic** - The Incredible True Story
 - **Marsimoto** - Verde \[45 RPM / CD included\]
 - **Marteria** - Roswell \[Colored Vinyl / CD included\]
-- **Maurice Rave** - Bolero
+- **Marteria** - Zum Glück In Die Zukunft II
+- **Maurice Ravel** - Bolero
 - **Michael Jackson** - Thriller
+- **Neil Diamond** - 12 Greatest Hits - Volume II
 - **Neil Young** - Harvest
 - **Notorious B.I.G.** - Ready To Die
 - **Peter Fox** - Stadtaffe
@@ -62,6 +65,7 @@ My vinyl collection
 - **Red Hot Chili Peppers** - Californication
 - **Rolling Stones** - Exile On Main St.
 - **Santana** - Inner Secrets
+- **Seeed** - New Dubby Conquerors
 - **Simon and Garfunkel** - Bridge over Troubled Water
 - **Steppenwolf** - Born To Be Wild \[45 RPM\]
 - **Supertramp** - Breakfast in America
