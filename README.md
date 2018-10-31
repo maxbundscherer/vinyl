@@ -46,7 +46,7 @@ My vinyl collection
 - **Logic** - The Incredible True Story
 - **Marsimoto** - Verde \[45 RPM / CD included\]
 - **Marteria** - Roswell \[Colored Vinyl / CD included\]
-- **Marteria** - Zum Glück In Die Zukunft II
+- **Marteria** - Zum Glück In Die Zukunft II \[CD included\]
 - **Maurice Ravel** - Bolero
 - **Michael Jackson** - Thriller
 - **Neil Diamond** - 12 Greatest Hits - Volume II
