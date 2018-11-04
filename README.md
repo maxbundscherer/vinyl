@@ -54,8 +54,8 @@ My vinyl collection
 - **Notorious B.I.G.** - Ready To Die
 - **Peter Fox** - Stadtaffe
 - **Pink Floyd** - Meddle
-- **Pink Floyd** - The Dark Side of the Moon \[1973 - US Winchester\]
-- **Pink Floyd** - The Dark Side of the Moon \[1983 Reissue - US\]
+- **Pink Floyd** - The Dark Side of the Moon \[1973 - US Winchester/Archived\]
+- **Pink Floyd** - The Dark Side of the Moon \[1983 Reissue - US/Archived\]
 - **Pink Floyd** - The Wall
 - **Pink Floyd** - Ummagumma
 - **Pink Floyd** - Wish You Were Here
