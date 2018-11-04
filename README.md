@@ -19,7 +19,7 @@ My vinyl collection
 - **Canned Heat** - Canned Heat
 - **Coldplay** - A Head Full Of Dream \[Colored Vinyl\]
 - **Coldplay** - Viva la Vida or Death and All His Friends
-- **Creedence Clearwater Revival** - Chronicle - The 20 Greatest Hits
+- **Creedence Clearwater Revival** - Chronicle - The 20 Greatest Hits \[Archived\]
 - **Creedence Clearwater Revival** - Creedence Clearwater Revival
 - **Deep Purple** - In Rock
 - **Deichkind** - Niveau Weshalb Warum
