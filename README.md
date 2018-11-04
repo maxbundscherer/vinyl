@@ -14,6 +14,7 @@ My vinyl collection
 - **Blues Brothers** - The Blues Brothers (Original Soundtrack Recording)
 - **Bob Marley & The Wailers** - Legend
 - **Boston** - Don't Look Back
+- **Buffalo Springfield** - Buffalo Springfield
 - **Bushman** - Signs
 - **Canned Heat** - Canned Heat
 - **Coldplay** - A Head Full Of Dream \[Colored Vinyl\]
@@ -26,12 +27,16 @@ My vinyl collection
 - **Dire Straits** - Brothers In Arms
 - **Dire Straits** - Communiqué
 - **Doors** - The Doors (1st Album)
+- **Eagles** - Hotel California
 - **Earth, Wind & Fire** - The Best Of Earth, Wind & Fire Vol. I \[Damaged/Archived\]
 - **Falco** - Falco 3
+- **Falco** - Nachtflug
 - **Frank Sinatra** - Songs For Swingin' Lovers!
 - **Giuseppe Verdi** - Aida / Don Carlos / Macbeth / Nabucco / Il Trovatore
 - **Giuseppe Verdi** - Nabucco - Großer Querschnitt In Italienischer Sprache
+- **Grandmaster Flash & The Furious Five** - The Message
 - **Hans Zimmer** - Interstellar (Original Motion Picture Soundtrack)
+- **J.J. Cale** - Troubadour
 - **Jeff Beck Group** - Beck-Ola
 - **Jefferson Airplane** - Surrealistic Pillow
 - **Jimi Hendrix** - Axis: Bold As Love
@@ -67,11 +72,13 @@ My vinyl collection
 - **Santana** - Inner Secrets
 - **Seeed** - New Dubby Conquerors
 - **Simon and Garfunkel** - Bridge over Troubled Water
+- **Soup Dragons** - Lovegod
 - **Steppenwolf** - Born To Be Wild \[45 RPM\]
 - **Steppenwolf** - Steppenwolf
 - **Supertramp** - Breakfast in America
 - **Supertramp** - Even in the Quietest Moments...
 - **Tame Impala** - Innerspeaker
+- **Tchaikovsky** - The Nutcracker Suite / Romeo And Juliet Overture-Fantasy \[M&K RealTime Records\]
 - **Tina Turner** - Private Dancer
 - **U2** - How To Dismantle An Atomic Bomb
 - **U2** - The Joshua Tree
