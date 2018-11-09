@@ -64,7 +64,7 @@ My vinyl collection
 - **Pink Floyd** - The Wall
 - **Pink Floyd** - Ummagumma
 - **Pink Floyd** - Wish You Were Here
-- **Queen** - Greatest Hits
+- **Queen** - Greatest Hits \[Archived\]
 - **Queen** - Greatest Hits II
 - **Quentin Tarantino** - Pulp Fiction: Music From The Motion Picture
 - **Red Hot Chili Peppers** - Californication
