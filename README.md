@@ -55,7 +55,7 @@ My vinyl collection
 - **Maurice Ravel** - Bolero
 - **Michael Jackson** - Thriller
 - **Neil Diamond** - 12 Greatest Hits - Volume II
-- **Neil Young** - Harvest
+- **Neil Young** - Harvest \[Archived\]
 - **Notorious B.I.G.** - Ready To Die
 - **Peter Fox** - Stadtaffe
 - **Pink Floyd** - Meddle
@@ -71,7 +71,7 @@ My vinyl collection
 - **Rolling Stones** - Exile On Main St.
 - **Santana** - Inner Secrets
 - **Seeed** - New Dubby Conquerors
-- **Simon and Garfunkel** - Bridge over Troubled Water
+- **Simon and Garfunkel** - Bridge over Troubled Water \[Archived\]
 - **Soup Dragons** - Lovegod
 - **Steppenwolf** - Born To Be Wild \[45 RPM\]
 - **Steppenwolf** - Steppenwolf
