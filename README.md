@@ -9,7 +9,10 @@ My vinyl collection
 - **Air** - Moon Safari
 - **Barry White** - Barry White's Greatest Hits
 - **Beatles** - Abbey Road
+- **Beatles** - Golden Greatest Hits
 - **Beatles** - Sgt. Pepper's Lonely Hearts Club Band
+- **Bee Gees** - 20 Greatest Hits
+- **Bee Gees** - Spirits Having Flown
 - **Black Voodoo Train** - We Are Not In California
 - **Blues Brothers** - The Blues Brothers (Original Soundtrack Recording)
 - **Bob Marley & The Wailers** - Legend
@@ -17,6 +20,7 @@ My vinyl collection
 - **Buffalo Springfield** - Buffalo Springfield
 - **Bushman** - Signs
 - **Canned Heat** - Canned Heat
+- **Carnabees** - The Story Of Simon & Garfunkel By The Carnabees
 - **Coldplay** - A Head Full Of Dream \[Colored Vinyl\]
 - **Coldplay** - Viva la Vida or Death and All His Friends
 - **Creedence Clearwater Revival** - Chronicle - The 20 Greatest Hits \[Archived\]
@@ -32,6 +36,7 @@ My vinyl collection
 - **Falco** - Falco 3
 - **Falco** - Nachtflug
 - **Frank Sinatra** - Songs For Swingin' Lovers!
+- **Genesis** - Genesis
 - **Giuseppe Verdi** - Aida / Don Carlos / Macbeth / Nabucco / Il Trovatore
 - **Giuseppe Verdi** - Nabucco - Großer Querschnitt In Italienischer Sprache
 - **Grandmaster Flash & The Furious Five** - The Message
@@ -58,14 +63,18 @@ My vinyl collection
 - **Neil Young** - Harvest \[Archived\]
 - **Notorious B.I.G.** - Ready To Die
 - **Peter Fox** - Stadtaffe
+- **Pink Floyd** - Atom Heart Mother
+- **Pink Floyd** - Delicate Sound Of Thunder
 - **Pink Floyd** - Meddle
+- **Pink Floyd** - The Dark Side Of The Moon \[1976 - Germany\]
 - **Pink Floyd** - The Dark Side of the Moon \[1973 - US Winchester/Archived\]
 - **Pink Floyd** - The Dark Side of the Moon \[1983 Reissue - US/Archived\]
+- **Pink Floyd** - The Final Cut
 - **Pink Floyd** - The Wall
 - **Pink Floyd** - Ummagumma
 - **Pink Floyd** - Wish You Were Here
-- **Queen** - Greatest Hits \[Archived\]
 - **Queen** - Greatest Hits II
+- **Queen** - Greatest Hits \[Archived\]
 - **Quentin Tarantino** - Pulp Fiction: Music From The Motion Picture
 - **Red Hot Chili Peppers** - Californication
 - **Rolling Stones** - Exile On Main St.
@@ -83,6 +92,7 @@ My vinyl collection
 - **U2** - How To Dismantle An Atomic Bomb
 - **U2** - The Joshua Tree
 - **Various** - Reggae Roots Vibration
+- **Various** - Saturday Night Fever (The Original Movie Sound Track)
 - **W. Ambros** - Wie Im Schlaf
 - **Who** - The Who Hits 50!
 - **Wooden Shjips** - Back To Land
