@@ -66,8 +66,8 @@ My vinyl collection
 - **Pink Floyd** - Atom Heart Mother
 - **Pink Floyd** - Delicate Sound Of Thunder
 - **Pink Floyd** - Meddle
-- **Pink Floyd** - The Dark Side of The Moon \[1976 - Germany\]
 - **Pink Floyd** - The Dark Side of the Moon \[1973 - US Winchester/Archived\]
+- **Pink Floyd** - The Dark Side of the Moon \[1976 - Germany\]
 - **Pink Floyd** - The Dark Side of the Moon \[1983 Reissue - US/Archived\]
 - **Pink Floyd** - The Final Cut
 - **Pink Floyd** - The Wall
