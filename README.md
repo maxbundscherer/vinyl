@@ -24,12 +24,14 @@ My vinyl collection
 - **Coldplay** - A Head Full Of Dream \[Colored Vinyl\]
 - **Coldplay** - Viva la Vida or Death and All His Friends
 - **Creedence Clearwater Revival** - Chronicle - The 20 Greatest Hits \[Archived\]
+- **Creedence Clearwater Revival** - Chronicle - The 20 Greatest Hits \[Archived\]
 - **Creedence Clearwater Revival** - Creedence Clearwater Revival
 - **Deep Purple** - In Rock
 - **Deichkind** - Niveau Weshalb Warum
 - **Derek and the Dominos** - Layla and Other Assorted Love Songs
 - **Dire Straits** - Brothers In Arms
 - **Dire Straits** - Communiqué
+- **Dire Straits** - On Every Street
 - **Doors** - The Doors (1st Album)
 - **Eagles** - Hotel California
 - **Earth, Wind & Fire** - The Best Of Earth, Wind & Fire Vol. I \[Damaged/Archived\]
@@ -39,6 +41,7 @@ My vinyl collection
 - **Genesis** - Genesis
 - **Giuseppe Verdi** - Aida / Don Carlos / Macbeth / Nabucco / Il Trovatore
 - **Giuseppe Verdi** - Nabucco - Großer Querschnitt In Italienischer Sprache
+- **Golden Avatar** - A Change Of Heart
 - **Grandmaster Flash & The Furious Five** - The Message
 - **Hans Zimmer** - Interstellar (Original Motion Picture Soundtrack)
 - **J.J. Cale** - Troubadour
@@ -69,6 +72,7 @@ My vinyl collection
 - **Pink Floyd** - The Dark Side of the Moon \[1973 - US Winchester/Archived\]
 - **Pink Floyd** - The Dark Side of the Moon \[1976 - Germany\]
 - **Pink Floyd** - The Dark Side of the Moon \[1983 Reissue - US/Archived\]
+- **Pink Floyd** - The Division Bell
 - **Pink Floyd** - The Final Cut
 - **Pink Floyd** - The Wall
 - **Pink Floyd** - Ummagumma
@@ -80,6 +84,7 @@ My vinyl collection
 - **Rolling Stones** - Exile On Main St.
 - **Santana** - Inner Secrets
 - **Seeed** - New Dubby Conquerors
+- **Simon And Garfunkel** - Bridge Over Troubled Water
 - **Simon and Garfunkel** - Bridge over Troubled Water \[Archived\]
 - **Soup Dragons** - Lovegod
 - **Steppenwolf** - Born To Be Wild \[45 RPM\]
@@ -91,6 +96,7 @@ My vinyl collection
 - **Tina Turner** - Private Dancer
 - **U2** - How To Dismantle An Atomic Bomb
 - **U2** - The Joshua Tree
+- **Various** - Klangerlebnis STEREOFONIE Eine Einführungs- und Testplatte
 - **Various** - Reggae Roots Vibration
 - **Various** - Saturday Night Fever (The Original Movie Sound Track)
 - **W. Ambros** - Wie Im Schlaf
