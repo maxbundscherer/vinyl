@@ -85,7 +85,7 @@ My vinyl collection
 - **Santana** - Inner Secrets
 - **Seeed** - New Dubby Conquerors
 - **Simon And Garfunkel** - Bridge Over Troubled Water
-- **Simon and Garfunkel** - Bridge over Troubled Water \[Archived\]
+- **Simon And Garfunkel** - Bridge Over Troubled Water \[Archived\]
 - **Soup Dragons** - Lovegod
 - **Steppenwolf** - Born To Be Wild \[45 RPM\]
 - **Steppenwolf** - Steppenwolf
