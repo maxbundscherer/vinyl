@@ -15,6 +15,7 @@ My vinyl collection
 - **Bee Gees** - Spirits Having Flown
 - **Black Voodoo Train** - We Are Not In California
 - **Blues Brothers** - The Blues Brothers (Original Soundtrack Recording)
+- **Bob Dylan** - Greatest Hits
 - **Bob Marley & The Wailers** - Legend
 - **Boston** - Don't Look Back
 - **Buffalo Springfield** - Buffalo Springfield
@@ -43,6 +44,8 @@ My vinyl collection
 - **Giuseppe Verdi** - Nabucco - Großer Querschnitt In Italienischer Sprache
 - **Golden Avatar** - A Change Of Heart
 - **Grandmaster Flash & The Furious Five** - The Message
+- **Grobschnitt** - Solar Music (Live)
+- **Hans Zimmer** - Inception (Music From The Motion Picture)
 - **Hans Zimmer** - Interstellar (Original Motion Picture Soundtrack)
 - **J.J. Cale** - Troubadour
 - **Jeff Beck Group** - Beck-Ola
@@ -58,6 +61,7 @@ My vinyl collection
 - **Lee Scratch Perry + Subatomic Sound System** - Super Ape Returns To Conquer \[CD included\]
 - **Logic** - The Incredible True Story
 - **Marsimoto** - Verde \[45 RPM / CD included\]
+- **Marteria & Casper** - 1982 \[CD included\]
 - **Marteria** - Roswell \[Colored Vinyl / CD included\]
 - **Marteria** - Zum Glück In Die Zukunft II \[CD included\]
 - **Maurice Ravel** - Bolero
@@ -77,6 +81,7 @@ My vinyl collection
 - **Pink Floyd** - The Wall
 - **Pink Floyd** - Ummagumma
 - **Pink Floyd** - Wish You Were Here
+- **Pogues** - If I Should Fall From Grace With God
 - **Queen** - Greatest Hits
 - **Queen** - Greatest Hits II
 - **Quentin Tarantino** - Pulp Fiction: Music From The Motion Picture
@@ -86,6 +91,7 @@ My vinyl collection
 - **Seeed** - New Dubby Conquerors
 - **Simon And Garfunkel** - Bridge Over Troubled Water
 - **Simon And Garfunkel** - Bridge Over Troubled Water \[Archived\]
+- **Soulstaff** - Set My Soul Free
 - **Soup Dragons** - Lovegod
 - **Steppenwolf** - Born To Be Wild \[45 RPM\]
 - **Steppenwolf** - Steppenwolf
@@ -96,6 +102,7 @@ My vinyl collection
 - **Tina Turner** - Private Dancer
 - **U2** - How To Dismantle An Atomic Bomb
 - **U2** - The Joshua Tree
+- **Van Halen** - Fair Warning
 - **Various** - Klangerlebnis STEREOFONIE Eine Einführungs- und Testplatte
 - **Various** - Reggae Roots Vibration
 - **Various** - Saturday Night Fever (The Original Movie Sound Track)
