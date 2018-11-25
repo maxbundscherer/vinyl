@@ -45,7 +45,7 @@ My vinyl collection
 - **Golden Avatar** - A Change Of Heart
 - **Grandmaster Flash & The Furious Five** - The Message
 - **Grobschnitt** - Solar Music (Live)
-- **Hans Zimmer** - Inception (Music From The Motion Picture)
+- **Hans Zimmer** - Inception (Music From The Motion Picture) \[Transparent Vinyl\]
 - **Hans Zimmer** - Interstellar (Original Motion Picture Soundtrack)
 - **J.J. Cale** - Troubadour
 - **Jeff Beck Group** - Beck-Ola
