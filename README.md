@@ -1,6 +1,6 @@
 # Vinyl
 
-My vinyl collection 
+My vinyl collection 🎵 🎧 🔊 💿
 
 **Author** - Name \[comment/particularities\]
 
