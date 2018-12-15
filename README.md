@@ -6,6 +6,7 @@ My vinyl collection 🎵 🎧 🔊 💿
 
 ---
 - **0101 (Stefan Carl, Daniel von Rüdiger)** - 0101 \[Cover bathed in the water\]
+- **2nd Secret Affair** - Running In The Night
 - **Air** - Moon Safari
 - **Barry White** - Barry White's Greatest Hits
 - **Beatles** - Abbey Road
@@ -39,6 +40,7 @@ My vinyl collection 🎵 🎧 🔊 💿
 - **Falco** - Falco 3
 - **Falco** - Nachtflug
 - **Frank Sinatra** - Songs For Swingin' Lovers!
+- **Frankie Goes To Hollywood** - Welcome To The Pleasuredome
 - **Genesis** - Genesis
 - **Giuseppe Verdi** - Aida / Don Carlos / Macbeth / Nabucco / Il Trovatore
 - **Giuseppe Verdi** - Nabucco - Großer Querschnitt In Italienischer Sprache
@@ -60,6 +62,7 @@ My vinyl collection 🎵 🎧 🔊 💿
 - **Led Zeppelin** - Led Zeppelin IV
 - **Lee Scratch Perry + Subatomic Sound System** - Super Ape Returns To Conquer \[CD included\]
 - **Logic** - The Incredible True Story
+- **Madness** - One Step Beyond
 - **Marsimoto** - Verde \[45 RPM / CD included\]
 - **Marteria & Casper** - 1982 \[CD included\]
 - **Marteria** - Roswell \[Colored Vinyl / CD included\]
@@ -69,6 +72,7 @@ My vinyl collection 🎵 🎧 🔊 💿
 - **Neil Diamond** - 12 Greatest Hits - Volume II
 - **Neil Young** - Harvest \[Archived\]
 - **Notorious B.I.G.** - Ready To Die
+- **Odesza** - Summer's Gone
 - **Peter Fox** - Stadtaffe
 - **Pink Floyd** - Atom Heart Mother
 - **Pink Floyd** - Delicate Sound Of Thunder
@@ -85,6 +89,7 @@ My vinyl collection 🎵 🎧 🔊 💿
 - **Queen** - Greatest Hits
 - **Queen** - Greatest Hits II
 - **Quentin Tarantino** - Pulp Fiction: Music From The Motion Picture
+- **Rasa** - Dancing On The Head Of The Serpent
 - **Red Hot Chili Peppers** - Californication
 - **Rolling Stones** - Exile On Main St.
 - **Santana** - Inner Secrets
