@@ -12,6 +12,7 @@ My vinyl collection 🎵 🎧 🔊 💿
 - **Beatles** - Abbey Road
 - **Beatles** - Golden Greatest Hits
 - **Beatles** - Sgt. Pepper's Lonely Hearts Club Band
+- **Beatles** - The Beatles
 - **Bee Gees** - 20 Greatest Hits
 - **Bee Gees** - Spirits Having Flown
 - **Black Voodoo Train** - We Are Not In California
@@ -57,6 +58,7 @@ My vinyl collection 🎵 🎧 🔊 💿
 - **Joe Bonamassa** - Dust Bowl
 - **Johnny Cash** - American VI: Ain't No Grave
 - **Johnny Cash** - The Essential Johnny Cash
+- **Johnny Guitar Watson** - The Very Best Of Johnny Guitar Watson
 - **K.I.Z.** - Hurra Die Welt Geht Unter
 - **KraftKlub** - Keine Nacht Für Niemand \[Colored Vinyl / 45 RPM\]
 - **Led Zeppelin** - Led Zeppelin IV
@@ -114,5 +116,6 @@ My vinyl collection 🎵 🎧 🔊 💿
 - **W. Ambros** - Wie Im Schlaf
 - **Who** - The Who Hits 50!
 - **Wooden Shjips** - Back To Land
+- **Wooden Shjips** - V.
 - **Yes** - 90125
 ---
