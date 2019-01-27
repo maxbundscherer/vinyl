@@ -60,6 +60,7 @@ My vinyl collection 🎵 🎧 🔊 💿
 - **Johnny Cash** - The Essential Johnny Cash
 - **Johnny Guitar Watson** - The Very Best Of Johnny Guitar Watson
 - **K.I.Z.** - Hurra Die Welt Geht Unter
+- **King Gizzard And The Lizard Wizard** - Float Along - Fill Your Lungs \[Colored Vinyl\]
 - **KraftKlub** - Keine Nacht Für Niemand \[Colored Vinyl / 45 RPM\]
 - **Led Zeppelin** - Led Zeppelin IV
 - **Lee Scratch Perry + Subatomic Sound System** - Super Ape Returns To Conquer \[CD included\]
@@ -106,6 +107,7 @@ My vinyl collection 🎵 🎧 🔊 💿
 - **Supertramp** - Even in the Quietest Moments...
 - **Tame Impala** - Innerspeaker
 - **Tchaikovsky** - The Nutcracker Suite / Romeo And Juliet Overture-Fantasy \[RealTime\]
+- **Ten Years After** - Cricklewood Green
 - **Tina Turner** - Private Dancer
 - **U2** - How To Dismantle An Atomic Bomb
 - **U2** - The Joshua Tree
