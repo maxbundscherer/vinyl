@@ -60,7 +60,7 @@ My vinyl collection 🎵 🎧 🔊 💿
 - **Johnny Cash** - The Essential Johnny Cash
 - **Johnny Guitar Watson** - The Very Best Of Johnny Guitar Watson
 - **K.I.Z.** - Hurra Die Welt Geht Unter
-- **King Gizzard And The Lizard Wizard** - Float Along - Fill Your Lungs \[Colored Vinyl\]
+- **King Gizzard And The Lizard Wizard** - Float Along - Fill Your Lungs \[Colored Vinyl / Poster included\]
 - **KraftKlub** - Keine Nacht Für Niemand \[Colored Vinyl / 45 RPM\]
 - **Led Zeppelin** - Led Zeppelin IV
 - **Lee Scratch Perry + Subatomic Sound System** - Super Ape Returns To Conquer \[CD included\]
