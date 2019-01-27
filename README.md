@@ -12,7 +12,7 @@ My vinyl collection 🎵 🎧 🔊 💿
 - **Beatles** - Abbey Road
 - **Beatles** - Golden Greatest Hits
 - **Beatles** - Sgt. Pepper's Lonely Hearts Club Band
-- **Beatles** - The Beatles
+- **Beatles** - The Beatles \[Poster included\]
 - **Bee Gees** - 20 Greatest Hits
 - **Bee Gees** - Spirits Having Flown
 - **Black Voodoo Train** - We Are Not In California
@@ -116,6 +116,6 @@ My vinyl collection 🎵 🎧 🔊 💿
 - **W. Ambros** - Wie Im Schlaf
 - **Who** - The Who Hits 50!
 - **Wooden Shjips** - Back To Land
-- **Wooden Shjips** - V.
+- **Wooden Shjips** - V. \[Colored Vinyl\]
 - **Yes** - 90125
 ---
