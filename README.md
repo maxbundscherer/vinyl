@@ -72,6 +72,8 @@ My vinyl collection 🎵 🎧 🔊 💿
 - **Marteria** - Zum Glück In Die Zukunft II \[CD included\]
 - **Maurice Ravel** - Bolero
 - **Michael Jackson** - Thriller
+- **Mondo Drag** - Mondo Drag
+- **Morcheeba** - Head Up High
 - **Neil Diamond** - 12 Greatest Hits - Volume II
 - **Neil Young** - Harvest \[Archived\]
 - **Notorious B.I.G.** - Ready To Die
@@ -96,6 +98,7 @@ My vinyl collection 🎵 🎧 🔊 💿
 - **Red Hot Chili Peppers** - Californication
 - **Rolling Stones** - Exile On Main St.
 - **Santana** - Inner Secrets
+- **Santana** - Santana's Greatest Hits
 - **Seeed** - New Dubby Conquerors
 - **Simon And Garfunkel** - Bridge Over Troubled Water
 - **Simon And Garfunkel** - Bridge Over Troubled Water \[Archived\]
@@ -115,6 +118,7 @@ My vinyl collection 🎵 🎧 🔊 💿
 - **Various** - Klangerlebnis STEREOFONIE Eine Einführungs- und Testplatte
 - **Various** - Reggae Roots Vibration
 - **Various** - Saturday Night Fever (The Original Movie Sound Track)
+- **Velvet Underground & Nico** - The Velvet Underground & Nico \[Transparent Vinyl\]
 - **W. Ambros** - Wie Im Schlaf
 - **Who** - The Who Hits 50!
 - **Wooden Shjips** - Back To Land
