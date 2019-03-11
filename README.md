@@ -26,6 +26,7 @@ My vinyl collection 🎵 🎧 🔊 💿
 - **Carnabees** - The Story Of Simon & Garfunkel By The Carnabees
 - **Coldplay** - A Head Full Of Dream \[Colored Vinyl\]
 - **Coldplay** - Viva la Vida or Death and All His Friends
+- **Cream** – Disraeli Gears
 - **Creedence Clearwater Revival** - Chronicle - The 20 Greatest Hits
 - **Creedence Clearwater Revival** - Chronicle - The 20 Greatest Hits \[Archived\]
 - **Creedence Clearwater Revival** - Creedence Clearwater Revival
@@ -73,7 +74,7 @@ My vinyl collection 🎵 🎧 🔊 💿
 - **Maurice Ravel** - Bolero
 - **Michael Jackson** - Thriller
 - **Mondo Drag** - Mondo Drag
-- **Morcheeba** - Head Up High
+- **Morcheeba** - Head Up High \[CD included\]
 - **Neil Diamond** - 12 Greatest Hits - Volume II
 - **Neil Young** - Harvest \[Archived\]
 - **Notorious B.I.G.** - Ready To Die
