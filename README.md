@@ -29,6 +29,7 @@ My vinyl collection 🎵 🎧 🔊 💿
 - **Cream** – Disraeli Gears
 - **Creedence Clearwater Revival** - Chronicle - The 20 Greatest Hits
 - **Creedence Clearwater Revival** - Chronicle - The 20 Greatest Hits \[Archived\]
+- **Creedence Clearwater Revival** - Cosmo's Factory \[Colored Vinyl\]
 - **Creedence Clearwater Revival** - Creedence Clearwater Revival
 - **Deep Purple** - In Rock
 - **Deichkind** - Niveau Weshalb Warum
