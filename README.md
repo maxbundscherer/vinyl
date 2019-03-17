@@ -75,6 +75,7 @@ My vinyl collection 🎵 🎧 🔊 💿
 - **Maurice Ravel** - Bolero
 - **Michael Jackson** - Thriller
 - **Mondo Drag** - Mondo Drag
+- **Morcheeba** - Blaze Away
 - **Morcheeba** - Head Up High \[CD included\]
 - **Neil Diamond** - 12 Greatest Hits - Volume II
 - **Neil Young** - Harvest \[Archived\]
