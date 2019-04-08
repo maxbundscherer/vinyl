@@ -105,6 +105,7 @@ My vinyl collection 🎵 🎧 🔊 💿
 - **Seeed** - New Dubby Conquerors
 - **Simon And Garfunkel** - Bridge Over Troubled Water
 - **Simon And Garfunkel** - Bridge Over Troubled Water \[Archived\]
+- **Six Organs Of Admittance** - School Of The Flower
 - **Soulstaff** - Set My Soul Free
 - **Soup Dragons** - Lovegod
 - **Steppenwolf** - Born To Be Wild \[45 RPM\]
