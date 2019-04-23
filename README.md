@@ -108,6 +108,7 @@ My vinyl collection 🎵 🎧 🔊 💿
 - **Six Organs Of Admittance** - School Of The Flower
 - **Soulstaff** - Set My Soul Free
 - **Soup Dragons** - Lovegod
+- **Spacemen 3** - Dreamweapon
 - **Steppenwolf** - Born To Be Wild \[45 RPM\]
 - **Steppenwolf** - Steppenwolf
 - **Supertramp** - Breakfast in America
@@ -118,6 +119,7 @@ My vinyl collection 🎵 🎧 🔊 💿
 - **Tina Turner** - Private Dancer
 - **U2** - How To Dismantle An Atomic Bomb
 - **U2** - The Joshua Tree
+- **Vagoos** - Psychic Action
 - **Van Halen** - Fair Warning
 - **Various** - Klangerlebnis STEREOFONIE Eine Einführungs- und Testplatte
 - **Various** - Reggae Roots Vibration
