@@ -40,6 +40,7 @@ My vinyl collection 🎵 🎧 🔊 💿
 - **Doors** - The Doors (1st Album)
 - **Eagles** - Hotel California
 - **Earth, Wind & Fire** - The Best Of Earth, Wind & Fire Vol. I \[Damaged/Archived\]
+- **Falco** - Einzelhaft
 - **Falco** - Falco 3
 - **Falco** - Nachtflug
 - **Frank Sinatra** - Songs For Swingin' Lovers!
