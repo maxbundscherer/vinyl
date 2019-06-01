@@ -114,6 +114,7 @@ My vinyl collection 🎵 🎧 🔊 💿
 - **Steppenwolf** - Steppenwolf
 - **Supertramp** - Breakfast in America
 - **Supertramp** - Even in the Quietest Moments...
+- **Tame Impala** - Currents
 - **Tame Impala** - Innerspeaker
 - **Tchaikovsky** - The Nutcracker Suite / Romeo And Juliet Overture-Fantasy \[RealTime\]
 - **Ten Years After** - Cricklewood Green
