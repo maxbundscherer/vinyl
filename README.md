@@ -82,12 +82,13 @@ My vinyl collection 🎵 🎧 🔊 💿
 - **Neil Young** - Harvest \[Archived\]
 - **Notorious B.I.G.** - Ready To Die
 - **Odesza** - Summer's Gone
+- **Paul Kalkbrenner** - Parts Of Life
 - **Peter Fox** - Stadtaffe
 - **Pink Floyd** - Atom Heart Mother
 - **Pink Floyd** - Delicate Sound Of Thunder
 - **Pink Floyd** - Meddle
 - **Pink Floyd** - The Dark Side of the Moon \[1973 - US Winchester/Archived\]
-- **Pink Floyd** - The Dark Side of the Moon \[1976 - Germany\]
+- **Pink Floyd** - The Dark Side of the Moon \[1976 - Germany / Poster included\]
 - **Pink Floyd** - The Dark Side of the Moon \[1983 Reissue - US/Archived\]
 - **Pink Floyd** - The Division Bell
 - **Pink Floyd** - The Final Cut
