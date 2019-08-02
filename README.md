@@ -73,6 +73,7 @@ My vinyl collection 🎵 🎧 🔊 💿
 - **Marteria & Casper** - 1982 \[CD included\]
 - **Marteria** - Roswell \[Colored Vinyl / CD included\]
 - **Marteria** - Zum Glück In Die Zukunft II \[CD included\]
+- **Massive Attack** - Mezzanine
 - **Maurice Ravel** - Bolero
 - **Michael Jackson** - Thriller
 - **Mondo Drag** - Mondo Drag
@@ -99,6 +100,7 @@ My vinyl collection 🎵 🎧 🔊 💿
 - **Queen** - Greatest Hits
 - **Queen** - Greatest Hits II
 - **Quentin Tarantino** - Pulp Fiction: Music From The Motion Picture
+- **Rammstein** - Rammstein
 - **Rasa** - Dancing On The Head Of The Serpent
 - **Red Hot Chili Peppers** - Californication
 - **Rolling Stones** - Exile On Main St.
