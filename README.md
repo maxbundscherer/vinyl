@@ -47,7 +47,7 @@ My vinyl collection 🎵 🎧 🔊 💿
 - **Frank Sinatra** - Songs For Swingin' Lovers!
 - **Frankie Goes To Hollywood** - Welcome To The Pleasuredome
 - **Genesis** - Genesis
-- **Giuseppe Verdi** - Aida / Don Carlos / Macbeth / Nabucco / Il Trovatore
+- **Giuseppe Verdi** - Aida/Don Carlos/Macbeth/Nabucco/Il Trovatore
 - **Giuseppe Verdi** - Nabucco - Großer Querschnitt In Italienischer Sprache
 - **Golden Avatar** - A Change Of Heart
 - **Grandmaster Flash & The Furious Five** - The Message
@@ -64,15 +64,15 @@ My vinyl collection 🎵 🎧 🔊 💿
 - **Johnny Cash** - The Essential Johnny Cash
 - **Johnny Guitar Watson** - The Very Best Of Johnny Guitar Watson
 - **K.I.Z.** - Hurra Die Welt Geht Unter
-- **King Gizzard And The Lizard Wizard** - Float Along - Fill Your Lungs \[Colored Vinyl / Poster included\]
-- **KraftKlub** - Keine Nacht Für Niemand \[Colored Vinyl / 45 RPM\]
+- **King Gizzard And The Lizard Wizard** - Float Along - Fill Your Lungs \[Colored Vinyl/Poster included\]
+- **KraftKlub** - Keine Nacht Für Niemand \[Colored Vinyl/45 RPM\]
 - **Led Zeppelin** - Led Zeppelin IV
 - **Lee Scratch Perry + Subatomic Sound System** - Super Ape Returns To Conquer \[CD included\]
 - **Logic** - The Incredible True Story
 - **Madness** - One Step Beyond
-- **Marsimoto** - Verde \[45 RPM / CD included\]
+- **Marsimoto** - Verde \[45 RPM/CD included\]
 - **Marteria & Casper** - 1982 \[CD included\]
-- **Marteria** - Roswell \[Colored Vinyl / CD included\]
+- **Marteria** - Roswell \[Colored Vinyl/CD included\]
 - **Marteria** - Zum Glück In Die Zukunft II \[CD included\]
 - **Massive Attack** - Mezzanine
 - **Maurice Ravel** - Bolero
@@ -90,7 +90,7 @@ My vinyl collection 🎵 🎧 🔊 💿
 - **Pink Floyd** - Delicate Sound Of Thunder
 - **Pink Floyd** - Meddle
 - **Pink Floyd** - The Dark Side of the Moon \[1973 - US Winchester/Archived\]
-- **Pink Floyd** - The Dark Side of the Moon \[1976 - Germany / Poster included\]
+- **Pink Floyd** - The Dark Side of the Moon \[1976 - Germany/Poster included\]
 - **Pink Floyd** - The Dark Side of the Moon \[1983 Reissue - US/Archived\]
 - **Pink Floyd** - The Division Bell
 - **Pink Floyd** - The Final Cut
@@ -120,7 +120,7 @@ My vinyl collection 🎵 🎧 🔊 💿
 - **Supertramp** - Even in the Quietest Moments...
 - **Tame Impala** - Currents
 - **Tame Impala** - Innerspeaker
-- **Tchaikovsky** - The Nutcracker Suite / Romeo And Juliet Overture-Fantasy \[RealTime\]
+- **Tchaikovsky** - The Nutcracker Suite/Romeo And Juliet Overture-Fantasy \[RealTime\]
 - **Ten Years After** - Cricklewood Green
 - **Tina Turner** - Private Dancer
 - **U2** - How To Dismantle An Atomic Bomb
