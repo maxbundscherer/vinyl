@@ -6,7 +6,7 @@ My vinyl collection 🎵 🎧 🔊 💿
 
 ---
 - **0101 (Stefan Carl, Daniel von Rüdiger)** - 0101 \[Cover bathed in the water\]
-- **0101 (Stefan Carl, Daniel von Rüdiger)** - 0101 \[Cover bathed in the water/Signed\]
+- **0101 (Stefan Carl, Daniel von Rüdiger)** - 0101 \[Cover bathed in the water/Signed by artist\]
 - **2nd Secret Affair** - Running In The Night
 - **Air** - Moon Safari
 - **Barry White** - Barry White's Greatest Hits
