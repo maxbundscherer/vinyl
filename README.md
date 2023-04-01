@@ -141,7 +141,4 @@ My vinyl collection 🎵 🎧 🔊 💿
 - **0101 (Stefan Carl, Daniel von Rüdiger)** - 972 Breakdowns (Original Motion Picture Soundtrack)
 - **Mogwai** - Atomic
 - **John McLaughlin** - Passion, Grace & Fire
-- **tbd** - tbd
-- **tbd** - tbd
-- **tbd** - tbd
-- **tbd** - tbd
+- **Paul Kalkbrenner** - Parts Of Life
