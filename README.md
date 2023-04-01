@@ -5,8 +5,9 @@ My vinyl collection 🎵 🎧 🔊 💿
 **Author** - Name \[comment/particularities\]
 
 ---
-- **0101 (Stefan Carl, Daniel von Rüdiger)** - 0101 \[Cover bathed in the water\]
 - **0101 (Stefan Carl, Daniel von Rüdiger)** - 0101 \[Cover bathed in the water/Signed by artist\]
+- **0101 (Stefan Carl, Daniel von Rüdiger)** - 0101 \[Cover bathed in the water\]
+- **0101 (Stefan Carl, Daniel von Rüdiger)** - 972 Breakdowns (Original Motion Picture Soundtrack)
 - **2nd Secret Affair** - Running In The Night
 - **Air** - Moon Safari
 - **Barry White** - Barry White's Greatest Hits
@@ -60,6 +61,7 @@ My vinyl collection 🎵 🎧 🔊 💿
 - **Jimi Hendrix** - Axis: Bold As Love
 - **Jimi Hendrix** - Electric Ladyland
 - **Joe Bonamassa** - Dust Bowl
+- **John McLaughlin** - Passion, Grace & Fire
 - **Johnny Cash** - American VI: Ain't No Grave
 - **Johnny Cash** - The Essential Johnny Cash
 - **Johnny Guitar Watson** - The Very Best Of Johnny Guitar Watson
@@ -77,6 +79,7 @@ My vinyl collection 🎵 🎧 🔊 💿
 - **Massive Attack** - Mezzanine
 - **Maurice Ravel** - Bolero
 - **Michael Jackson** - Thriller
+- **Mogwai** - Atomic
 - **Mondo Drag** - Mondo Drag
 - **Morcheeba** - Blaze Away
 - **Morcheeba** - Head Up High \[CD included\]
@@ -137,8 +140,3 @@ My vinyl collection 🎵 🎧 🔊 💿
 - **Wooden Shjips** - V. \[Colored Vinyl\]
 - **Yes** - 90125
 ---
-
-- **0101 (Stefan Carl, Daniel von Rüdiger)** - 972 Breakdowns (Original Motion Picture Soundtrack)
-- **Mogwai** - Atomic
-- **John McLaughlin** - Passion, Grace & Fire
-- **Paul Kalkbrenner** - Parts Of Life
